@@ -1,2 +1,2 @@
-Ola, Sou um estudante cursando o Ensino Medio, me chamo Gabriel Vieira, sou apaixonado pela área de TI e Tecnologia, e sempre estou em busca de conhecimento e aprendizado, me considero alguem em que aprendo rapido independente da situação e posso ser de grande ajuda para alguem.
+Ola, Sou um estudante cursando o Ensino Medio, me chamo Gabriel Vieira, sou apaixonado pela área de TI e Tecnologia, e sempre estou em busca de conhecimento e aprendizado, me considero alguem em que aprende rapido independente da situação e posso ser de grande ajuda para alguem.
 Ao Longo da minha carreira, tive a oportunidade apenas de trabalhar como Folguista e Freelancer em uma pizzaria, porem tive que parar por motivos de estudos, estou fazendo muitos cursos e quase não estou com tempo.
